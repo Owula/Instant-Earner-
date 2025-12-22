@@ -1,2 +1,2 @@
-# Instant-Earner-
+# Instant-Earner-$
 real and legit 
